@@ -33,7 +33,7 @@
 
 ### 🔗 Let's Connect
 
-- 📫 Email: sshreya20art@gmail.com 
+- 📫 Email: shreya20art@gmail.com 
 - 🌐 Portfolio: coming soon...
 - 🧠 Projects coming to this page very soon... stay tuned! 😉
 
