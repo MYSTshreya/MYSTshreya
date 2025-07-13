@@ -16,8 +16,8 @@
 
 ### 🛠 What I’m Working On
 
-- 🤖 An AI flashcard app for learning languages  
-- 🧩 A quiz game that combines math + multilingual questions  
+- 🤖 An AI quick food according to the users mood 🥂
+- 🧩 An AI online portal for finding the best version of anyone with their wardrobe🤳 
 - 📝 Writing my Statement of Purpose for fully-funded international scholarships  
 
 ---
@@ -27,8 +27,7 @@
 - 🥋 Green Belt in taekwondo  
 - 🧑‍🎨 Love painting (with a few wins in national art competitions)  
 - 🧩 Gold Medalist in International Reasoning & Aptitude Olympiad  
-- 🎯 Big dreams: To study abroad, build a meaningful tech career, and give back
-
+- 🎯 Big dreams: To study abroad, build a meaningful tech career, and give back the world something no one thought of. 🪄
 ---
 
 ### 🔗 Let's Connect
